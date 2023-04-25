@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About us:
 🥔Wir sind das LaudyNetwork! <br>Besuche doch gerne unsere Webseite unter https://laudynetwork.com
 
 
